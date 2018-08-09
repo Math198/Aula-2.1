@@ -1,3 +1,4 @@
 Tom Cruise
-Vin Diesel
+Chapolin Chaves
 Jhonny Depp
+Paul Walker
